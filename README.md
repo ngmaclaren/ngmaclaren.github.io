@@ -1,3 +1,3 @@
 # ngmaclaren.github.io
 
-Under construction!
+[Please visit my new homepage!](https://www.neilgmaclaren.com/)
